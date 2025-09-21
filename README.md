@@ -1,3 +1,7 @@
 Hi! im the creator of Down To Heaven.
-<img width="4813" height="2322" alt="Untitled152_20250829092648" src="https://github.com/user-attachments/assets/05c6e679-4185-4954-bbce-6de408901edc" />
-recent art^
+<img width="2301" height="3141" alt="Untitled35_20250916144821" src="https://github.com/user-attachments/assets/cfbb0e07-7805-48a8-b2c4-7a015df651c5" />
+lazy background art
+
+https://github.com/user-attachments/assets/387a18ee-20e3-4a7a-85fe-797daff9c682
+trife animation
+
